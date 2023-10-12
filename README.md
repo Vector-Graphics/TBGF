@@ -1,4 +1,4 @@
-# TBGF
+# TBGF #1 Remastered: King Godverse
 A mirror for the TBGF article that was too fat to fit in a Reddit post.
 I decided to remaster this and post it on my new account with my current knowledge from making TBGF for 9 parts.
 
